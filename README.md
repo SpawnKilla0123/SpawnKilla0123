@@ -3,7 +3,7 @@ wip I'll fix this later.
 [![IMG-5113.gif](https://i.postimg.cc/6q7wp92T/IMG-5113.gif)](https://postimg.cc/30HzLQZH) <br>
 [![IMG-5114.gif](https://i.postimg.cc/rpFpL2JH/IMG-5114.gif)](https://postimg.cc/3kVhg6zj)
 
-   [![Untitled1214-20260929200413.png](https://i.postimg.cc/0y9kp1Lz/Untitled1214-20260929200413.png)](https://postimg.cc/ykrCHt6K) 
+   
 
 <details>
    <summary>  ${\textsf{\color{#C4F2EE}easy to read }}$ </summary> <br>

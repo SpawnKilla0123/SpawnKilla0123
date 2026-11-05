@@ -1,18 +1,16 @@
 wip I'll fix this later.
 
 [![IMG-5113.gif](https://i.postimg.cc/6q7wp92T/IMG-5113.gif)](https://postimg.cc/30HzLQZH) <br>
-[![IMG-5114.gif](https://i.postimg.cc/rpFpL2JH/IMG-5114.gif)](https://postimg.cc/3kVhg6zj)
-
    
 
 <details>
-   <summary>  ${\textsf{\color{#C4F2EE}easy to read }}$ </summary> <br>
-${\textsf{\color{#C4F2EE}Camryn , they / them , 17 }}$ <br>
-${\textsf{\color{#6A70D9}I block freely always iweCau I bite }}$ <br>
-${\textsf{\color{#5F5BD9}-15 iwc , Awze fg❤️ }}$ <br>
-${\textsf{\color{#5344C5}I came to visit you, Creator! }}$ <br>
-${\textsf{\color{#3124A9}chol-mel sp/sx 874 8w7 ESFP VFLE }}$
-${\textsf{\color{#3124A9}Se - Fi - Te - Ni }}$
+   <summary>  ${\textsf{\color{#C4F2EE}info for now while I remake my readme }}$ </summary> <br>
+${\textsf{\color{#C4F2EE}refer to me as Camryn or Toby }}$ <br>
+${\textsf{\color{#6A70D9}I block freely, always iweCau I bite }}$ <br>
+${\textsf{\color{#5F5BD9}poly , asexual-spectrum }}$ <br>
+${\textsf{\color{#5344C5}byf I have a high ego and I get irritated easily }}$ <br>
+${\textsf{\color{#3124A9}don't mention romantic jokes around me thx }}$
+${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
 </details> <br>
 <details>
    <summary>  ${\textsf{\color{#C4F2EE} Wonderful gang }}$ </summary> <br>

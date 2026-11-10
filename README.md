@@ -1,6 +1,6 @@
 under construction... come back later!
 
-<img width="480" height="480" alt="Image" src="https://github.com/user-attachments/assets/d422a590-1893-4462-bc5c-f14d6d6fb2f2" /> <br>
+<img width="480" height="480" alt="output-onlinegiftools-ezgif com-optimize" src="https://github.com/user-attachments/assets/1c568f12-6e9d-457f-917e-bdd285834dd0" /> <br>
 
 <details>
    <summary>  ${\textsf{\color{#C4F2EE}info for now while I remake my readme }}$ </summary> <br>

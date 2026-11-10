@@ -1,6 +1,6 @@
 under construction... come back later!
 
-![](https://file.garden/avLYrmasfN-ArM9g/IMG_6446.gif) <br>
+<img width="480" height="480" alt="Image" src="https://github.com/user-attachments/assets/d422a590-1893-4462-bc5c-f14d6d6fb2f2" /> <br>
 
 <details>
    <summary>  ${\textsf{\color{#C4F2EE}info for now while I remake my readme }}$ </summary> <br>

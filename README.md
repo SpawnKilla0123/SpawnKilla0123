@@ -1,6 +1,6 @@
 wip I'll fix this later.
 
-[![IMG-6446.gif](https://i.postimg.cc/P5Dn7mVc/IMG-6446.gif)](https://postimg.cc/cvdzg8SM)
+[![IMG-6446.gif](https://i.postimg.cc/P5Dn7mVc/IMG-6446.gif)](https://postimg.cc/cvdzg8SM) <br> 
 
 <details>
    <summary>  ${\textsf{\color{#C4F2EE}info for now while I remake my readme }}$ </summary> <br>

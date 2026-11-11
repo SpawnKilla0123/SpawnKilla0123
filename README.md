@@ -2,7 +2,7 @@
 
 under construction... come back later!
 
-<img width="480" height="480" alt="output-onlinegiftools-ezgif com-optimize" src="https://github.com/user-attachments/assets/1c568f12-6e9d-457f-917e-bdd285834dd0" /> <br>
+<img width="800" height="644" alt="output-onlinegiftools1-ezgif com-optimize" src="https://github.com/user-attachments/assets/8a799c96-9031-4752-89b7-4e3f27a48149" /> <br>
 
 <details>
    <summary>  ${\textsf{\color{#C4F2EE}info for now while I remake my readme }}$ </summary> <br>

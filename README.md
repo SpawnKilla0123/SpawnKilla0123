@@ -1,8 +1,4 @@
-<img width="1280" height="400" alt="Untitled183_20261111130543" src="https://github.com/user-attachments/assets/9e158900-578e-4239-ae6e-fa939e4fb116" /> <br>
-
 under construction... come back later!
-
-<img width="800" height="644" alt="output-onlinegiftools1-ezgif com-optimize" src="https://github.com/user-attachments/assets/8a799c96-9031-4752-89b7-4e3f27a48149" /> <br>
 
 <details>
    <summary>  ${\textsf{\color{#C4F2EE}info for now while I remake my readme }}$ </summary> <br>
@@ -13,6 +9,12 @@ ${\textsf{\color{#5344C5}byf I have a high ego and I get irritated easily }}$ <b
 ${\textsf{\color{#3124A9}don't mention romantic jokes around me thx }}$
 ${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
 </details> <br>
+
+<img width="1280" height="400" alt="Untitled183_20261111130543" src="https://github.com/user-attachments/assets/9e158900-578e-4239-ae6e-fa939e4fb116" /> <br>
+
+
+<img width="800" height="644" alt="output-onlinegiftools1-ezgif com-optimize" src="https://github.com/user-attachments/assets/8a799c96-9031-4752-89b7-4e3f27a48149" /> <br>
+
 
 <img width="1920" height="1375" alt="Untitled182_20261111130320" src="https://github.com/user-attachments/assets/337cd0db-0b6e-4d79-9c06-44c857fdcbd8" /> <br>
 

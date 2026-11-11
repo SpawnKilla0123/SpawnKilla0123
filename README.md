@@ -1,3 +1,5 @@
+[![Untitled179-20261111080832.png](https://i.postimg.cc/9fjvtx9g/Untitled179-20261111080832.png)](https://postimg.cc/gxNSGHN3) <br>
+
 under construction... come back later!
 
 <img width="480" height="480" alt="output-onlinegiftools-ezgif com-optimize" src="https://github.com/user-attachments/assets/1c568f12-6e9d-457f-917e-bdd285834dd0" /> <br>
@@ -11,6 +13,9 @@ ${\textsf{\color{#5344C5}byf I have a high ego and I get irritated easily }}$ <b
 ${\textsf{\color{#3124A9}don't mention romantic jokes around me thx }}$
 ${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
 </details> <br>
+
+[![Untitled178-20261111080424.png](https://i.postimg.cc/5yMYxWFM/Untitled178-20261111080424.png)](https://postimg.cc/nj0ck5kd) <br>
+
 <details>
    <summary>  ${\textsf{\color{#C4F2EE} Wonderful gang }}$ </summary> <br>
 <a href=https://github.com/Iiquidsmooth>@Iiquidsmooth</a> <br>

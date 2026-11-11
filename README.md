@@ -17,6 +17,11 @@ ${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
 [![Untitled178-20261111080424.png](https://i.postimg.cc/5yMYxWFM/Untitled178-20261111080424.png)](https://postimg.cc/nj0ck5kd) <br>
 
 <details>
+   <summary>  ${\textsf{\color{#C4F2EE} credit }}$ </summary> <br>
+<a href=https://github.com/xxjardxgalf-yaoi69xx>@xxjardxgalf-yaoi69xx</a> <br>
+</details>
+   
+<details>
    <summary>  ${\textsf{\color{#C4F2EE} Wonderful gang }}$ </summary> <br>
 <a href=https://github.com/Iiquidsmooth>@Iiquidsmooth</a> <br>
 <a href=https://github.com/Chemicalshot>@Chemicalshot</a> <br>

@@ -1,4 +1,4 @@
-[![Untitled179-20261111080832.png](https://i.postimg.cc/9fjvtx9g/Untitled179-20261111080832.png)](https://postimg.cc/gxNSGHN3) <br>
+<img width="1280" height="400" alt="cc8bbddd-77be-4237-b904-a6a0ac91021f (1)" src="https://github.com/user-attachments/assets/588d99d4-d2a4-4dbf-b515-1715d46656de" /> <br>
 
 under construction... come back later!
 
@@ -14,7 +14,7 @@ ${\textsf{\color{#3124A9}don't mention romantic jokes around me thx }}$
 ${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
 </details> <br>
 
-[![Untitled178-20261111080424.png](https://i.postimg.cc/5yMYxWFM/Untitled178-20261111080424.png)](https://postimg.cc/nj0ck5kd) <br>
+<img width="1920" height="1375" alt="Untitled182_20261111130320" src="https://github.com/user-attachments/assets/337cd0db-0b6e-4d79-9c06-44c857fdcbd8" /> <br>
 
 <details>
    <summary>  ${\textsf{\color{#C4F2EE} credit }}$ </summary> <br>

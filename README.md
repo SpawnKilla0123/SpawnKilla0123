@@ -22,18 +22,16 @@ ${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
 
 
 <img width="800" height="644" alt="output-onlinegiftools1-ezgif com-optimize" src="https://github.com/user-attachments/assets/8a799c96-9031-4752-89b7-4e3f27a48149" /> <br>
-
-    ( ωh۫ყ   Ꮷօ   thᥱ۫ಽᥱ   ᥱyᥱ۫ಽ  ݂   ༷⁾
+    ( ωh۫ყ   Ꮷօ   thᥱ۫ಽᥱ   ᥱyᥱ۫ಽ  ݂   ༷⁾
       ⊹ ۫ ⁽⁽   oƒ   ოι۫ոᥱ   𝖼𝗋ყ？⋮     ﹚₊
 
-   <img width="150" height="20" alt="tumblr_d9ed639f196ca0271d4ae3ef48888c6b_4074ddc2_250" src="https://github.com/user-attachments/assets/c73fb716-04d9-4a54-8cdb-a2d4905c2c46" /> <img width="99" height="56" alt="tumblr_53672b3f42aef7c36049c31f3d07ba58_85aea190_100" src="https://github.com/user-attachments/assets/b063b48d-d865-4e5a-bbf0-9b71c885fbf3" /> <br>
 
 <img width="1920" height="1375" alt="Untitled182_20261111130320" src="https://github.com/user-attachments/assets/337cd0db-0b6e-4d79-9c06-44c857fdcbd8" /> <br>
 
 
 　　　　17y/o　꒰๑ '   ' ๑꒱　-15 dni pls　𑁯𓈒　e
 　　　　◟ ͜𓏼　prns　　cc　wip　ᘞ ˚
-    <img width="99" height="56" alt="tumblr_7b6f20e6ab45cb118b6c3f512377e139_52ebbabb_100" src="https://github.com/user-attachments/assets/bbcde85a-3406-493e-b937-089978a0534f" />
+       
 　　　　
 <img width="400" height="51" alt="Untitled1271_20261112105430" src="https://github.com/user-attachments/assets/fde8f352-d4a3-4b6c-a08a-a60bf39e40ec" /> <br>
 

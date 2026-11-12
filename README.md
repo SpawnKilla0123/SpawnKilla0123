@@ -27,6 +27,12 @@ ${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
 
 <img width="1920" height="1375" alt="Untitled182_20261111130320" src="https://github.com/user-attachments/assets/337cd0db-0b6e-4d79-9c06-44c857fdcbd8" /> <br>
 
+
+　　　　17y/o　꒰๑ '   ' ๑꒱　-15 dni pls　𑁯𓈒　e
+　　　　◟ ͜𓏼　prns　　cc　wip　ᘞ ˚
+　　　　
+
+
 <details>
    <summary>  ${\textsf{\color{#C4F2EE} credit }}$ </summary> <br>
 <a href=https://github.com/xxjardxgalf-yaoi69xx>@xxjardxgalf-yaoi69xx</a> <br>

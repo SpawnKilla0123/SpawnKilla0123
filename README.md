@@ -13,17 +13,18 @@ ${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
 <img width="1238" height="400" alt="Untitled183_20261111130543" src="https://github.com/user-attachments/assets/9e158900-578e-4239-ae6e-fa939e4fb116" /> <br>
 <img width="400" height="51" alt="Untitled1271_20261112105430" src="https://github.com/user-attachments/assets/fde8f352-d4a3-4b6c-a08a-a60bf39e40ec" /> <br>
 
-        ∑  ✚   Camryn¹     Toby²  ｡
-        (◠ ˔ ◠    She   They  (they prefer) ꕀ
-           ⎯ taken <3 
-
+⠀⠀⠀⠀ ∑  ✚   Camryn¹     Toby²       ⠀⠀⠀⠀  
+⠀⠀⠀⠀ (◠ ˔ ◠    She   They  (they prefer) ꕀ
+      ⠀⠀⠀⠀  ⠀⠀⠀⠀   ⎯ taken <3 
+           
+        
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/346ea7d0-504e-448a-b1f2-2aa5fc5eca06" /> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/dd572f16-d433-4dff-bab4-3d259d3411d0" /> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/afa32ad1-59b3-4ffd-a6dc-8f3c62f58bfb" /> <br>
 
 
 <img width="800" height="644" alt="output-onlinegiftools1-ezgif com-optimize" src="https://github.com/user-attachments/assets/8a799c96-9031-4752-89b7-4e3f27a48149" /> <br>
 
-   ฀฀฀▬ι═݂═۫═۪> ωh۫ყ   Ꮷօ ༷   ե༷hᥱ۫ಽᥱ   ᥱყ༷ᥱ۫ಽ  ݂   ༷⁾
-      ⊹ ۫ ⁽⁽   օ༷ƒ   ოι۫ոᥱ   𝖼𝗋ყ？⋮  𑙕ྀི𓈒ੵ. ݂ .𓈒 ᩙ𑁬ཾ   ﹚₊
+    ( ωh۫ყ   Ꮷօ   thᥱ۫ಽᥱ   ᥱyᥱ۫ಽ  ݂   ༷⁾
+      ⊹ ۫ ⁽⁽   oƒ   ოι۫ոᥱ   𝖼𝗋ყ？⋮     ﹚₊
 
 
 <img width="1920" height="1375" alt="Untitled182_20261111130320" src="https://github.com/user-attachments/assets/337cd0db-0b6e-4d79-9c06-44c857fdcbd8" /> <br>

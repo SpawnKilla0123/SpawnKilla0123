@@ -10,14 +10,14 @@ ${\textsf{\color{#3124A9}don't mention romantic jokes around me thx }}$
 ${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
 </details> <br>
 
-<img width="1280" height="400" alt="Untitled183_20261111130543" src="https://github.com/user-attachments/assets/9e158900-578e-4239-ae6e-fa939e4fb116" /> <br>
+<img width="1238" height="400" alt="Untitled183_20261111130543" src="https://github.com/user-attachments/assets/9e158900-578e-4239-ae6e-fa939e4fb116" /> <br>
 
 
         ∑  ✚   Camryn¹     Toby²  ｡
         (◠ ˔ ◠    She   They  (they prefer) ꕀ
            ⎯ Bless my darling <3 Transfemme
 
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/346ea7d0-504e-448a-b1f2-2aa5fc5eca06" /> <br>
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/346ea7d0-504e-448a-b1f2-2aa5fc5eca06" /> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/dd572f16-d433-4dff-bab4-3d259d3411d0" /> <br>
 
 
 <img width="800" height="644" alt="output-onlinegiftools1-ezgif com-optimize" src="https://github.com/user-attachments/assets/8a799c96-9031-4752-89b7-4e3f27a48149" /> <br>

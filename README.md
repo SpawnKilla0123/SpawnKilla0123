@@ -15,9 +15,9 @@ ${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
 
         ∑  ✚   Camryn¹     Toby²  ｡
         (◠ ˔ ◠    She   They  (they prefer) ꕀ
-           ⎯ Bless my darling <3 Transfemme
+           ⎯ taken <3 
 
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/346ea7d0-504e-448a-b1f2-2aa5fc5eca06" /> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/dd572f16-d433-4dff-bab4-3d259d3411d0" /> <br>
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/346ea7d0-504e-448a-b1f2-2aa5fc5eca06" /> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/dd572f16-d433-4dff-bab4-3d259d3411d0" /> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/afa32ad1-59b3-4ffd-a6dc-8f3c62f58bfb" /> <br>
 
 
 <img width="800" height="644" alt="output-onlinegiftools1-ezgif com-optimize" src="https://github.com/user-attachments/assets/8a799c96-9031-4752-89b7-4e3f27a48149" /> <br>

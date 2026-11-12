@@ -11,7 +11,7 @@ ${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
 </details> <br>
 
 <img width="1238" height="400" alt="Untitled183_20261111130543" src="https://github.com/user-attachments/assets/9e158900-578e-4239-ae6e-fa939e4fb116" /> <br>
-
+<img width="400" height="51" alt="Untitled1271_20261112105430" src="https://github.com/user-attachments/assets/fde8f352-d4a3-4b6c-a08a-a60bf39e40ec" /> <br>
 
         ∑  ✚   Camryn¹     Toby²  ｡
         (◠ ˔ ◠    She   They  (they prefer) ꕀ
@@ -32,7 +32,7 @@ ${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
 　　　　17y/o　꒰๑ '   ' ๑꒱　-15 dni pls　𑁯𓈒　e
 　　　　◟ ͜𓏼　prns　　cc　wip　ᘞ ˚
 　　　　
-
+<img width="400" height="51" alt="Untitled1271_20261112105430" src="https://github.com/user-attachments/assets/fde8f352-d4a3-4b6c-a08a-a60bf39e40ec" /> <br>
 
 <details>
    <summary>  ${\textsf{\color{#C4F2EE} credit }}$ </summary> <br>

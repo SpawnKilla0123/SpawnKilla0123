@@ -18,7 +18,7 @@ ${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
       ⠀⠀⠀⠀  ⠀⠀⠀⠀   ⎯ taken <3 
            
         
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/346ea7d0-504e-448a-b1f2-2aa5fc5eca06" /> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/dd572f16-d433-4dff-bab4-3d259d3411d0" /> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/afa32ad1-59b3-4ffd-a6dc-8f3c62f58bfb" /> <br>
+<img width="150" height="20" alt="tumblr_5ec2d56c845660ec9537990460c49a53_aceb0738_250" src="https://github.com/user-attachments/assets/ebeafbaa-cfd9-4c3e-848a-a9ed6b71f4a1" /> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/dd572f16-d433-4dff-bab4-3d259d3411d0" /> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/afa32ad1-59b3-4ffd-a6dc-8f3c62f58bfb" /> <br>
 
 
 <img width="800" height="644" alt="output-onlinegiftools1-ezgif com-optimize" src="https://github.com/user-attachments/assets/8a799c96-9031-4752-89b7-4e3f27a48149" /> <br>
@@ -26,6 +26,7 @@ ${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
     ( ωh۫ყ   Ꮷօ   thᥱ۫ಽᥱ   ᥱyᥱ۫ಽ  ݂   ༷⁾
       ⊹ ۫ ⁽⁽   oƒ   ოι۫ոᥱ   𝖼𝗋ყ？⋮     ﹚₊
 
+   <img width="150" height="20" alt="tumblr_d9ed639f196ca0271d4ae3ef48888c6b_4074ddc2_250" src="https://github.com/user-attachments/assets/c73fb716-04d9-4a54-8cdb-a2d4905c2c46" /> <br>
 
 <img width="1920" height="1375" alt="Untitled182_20261111130320" src="https://github.com/user-attachments/assets/337cd0db-0b6e-4d79-9c06-44c857fdcbd8" /> <br>
 

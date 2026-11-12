@@ -18,7 +18,7 @@ ${\textsf{\color{#3124A9}INFP so/sp 694 6w5 }}$
       ⠀⠀⠀⠀  ⠀⠀⠀⠀   ⎯ taken <3 
            
         
-<img width="150" height="20" alt="tumblr_5ec2d56c845660ec9537990460c49a53_aceb0738_250" src="https://github.com/user-attachments/assets/ebeafbaa-cfd9-4c3e-848a-a9ed6b71f4a1" /> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/dd572f16-d433-4dff-bab4-3d259d3411d0" /> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/afa32ad1-59b3-4ffd-a6dc-8f3c62f58bfb" /> <br>
+<img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/dd572f16-d433-4dff-bab4-3d259d3411d0" /> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/afa32ad1-59b3-4ffd-a6dc-8f3c62f58bfb" /> <br>
 
 
 <img width="800" height="644" alt="output-onlinegiftools1-ezgif com-optimize" src="https://github.com/user-attachments/assets/8a799c96-9031-4752-89b7-4e3f27a48149" /> <br>
